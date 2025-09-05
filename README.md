@@ -1,1 +1,1 @@
-Este proyecto fue iniciado por Karla Martinez y Juan Camilo Muñoz
+Este proyecto fue iniciado por Karla Martinez y Juan Camilo Muñoz  Y yo soy Karla Martinez de nuevo 
